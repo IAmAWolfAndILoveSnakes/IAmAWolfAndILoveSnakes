@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Therians and Theriotypes!
 - 📫 How to reach me (not many ways beside email: hjpiechocki@Madison.k12.wi.us
 - 😄 Pronouns: She/Her/They/Them
-- ⚡ Fun fact: I'm a Therian and my Theriotype is a wolf
+- ⚡ Fun fact: I'm a Therian and my Theriotype is a wolf, I have a girlfriend, Im pansexual/poly.
 
 <!---
 IAmAWolfAndILoveSnakes/IAmAWolfAndILoveSnakes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
